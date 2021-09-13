@@ -1,1 +1,0 @@
-# red-store-shopping-website
